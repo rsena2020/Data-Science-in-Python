@@ -20,7 +20,7 @@ Experienced Supply Planner with a demonstrated history of working in the electri
 
 
 ## Projects:
-Here you go my plajects published in:
+Here you go my projects published in:
 
 * **Under developping:** https://bit.ly/2L2cMwy
 
